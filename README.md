@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on creating any project 
 - 📫 How to reach me : aiinurnhzz@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: coding for fun
+- ⚡ Fun fact: don't konw
 
 <!---
 AINURNHZ/AINURNHZ is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
